@@ -143,5 +143,5 @@ This project delivers a **fully automated, scalable batch processing system** fo
 
 --- 
 
-🔗 **Connect:** [LinkedIn](https://www.linkedin.com/in/yourprofile) | [Portfolio](https://yourportfolio.com)  
-📧 **Contact:** youremail@domain.com
+🔗 **Connect:** [Phone](+254718249916)  
+📧 **Contact:** yashwanthkrishna98@gmail.com
